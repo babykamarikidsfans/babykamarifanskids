@@ -3,7 +3,7 @@
 
 ## 觀賞與下載電影
 
-### [➤ 型男主廚三星夢：巴黎篇電影線上看，而且完全免費!](https://www.gimy.tech/2025/03/beyond-the-sin-hd-gimy.html)
+### [➤ 型男主廚三星夢：巴黎篇電影線上看，而且完全免費!](https://www.gimy.tech/2025/03/grand-maison-paris-hd-gimy.html)
 
 
 ## 劇情
